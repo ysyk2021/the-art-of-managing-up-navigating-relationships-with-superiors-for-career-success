@@ -1,5 +1,4 @@
-Chapter 9: Continuous Improvement and Evaluation: Reflection and Self-Evaluation
-================================================================================
+# Reflection and Self-Evaluation
 
 Managing up involves building strong relationships with your superiors in order to achieve greater success in your career. However, managing up effectively also requires continuous improvement and evaluation, including reflection and self-evaluation. In this chapter, we will explore how to continuously improve and evaluate your performance, including the importance of reflection and self-evaluation.
 

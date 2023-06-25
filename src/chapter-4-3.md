@@ -1,5 +1,4 @@
-Chapter 4: Managing Expectations and Delivering Results: Communicating Progress and Results Effectively
-=======================================================================================================
+# Communicating Progress and Results Effectively
 
 Managing expectations and delivering results are essential aspects of managing up effectively. This involves setting realistic goals, communicating progress, and following through on commitments. In this chapter, we will explore strategies for communicating progress and results effectively when managing up.
 

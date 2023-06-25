@@ -1,5 +1,4 @@
-Chapter 5: Developing Influence and Persuasion Skills: Understanding the Role of Influence in Managing Up
-=========================================================================================================
+# Understanding the Role of Influence in Managing Up
 
 Influence is a critical aspect of managing up effectively. It involves building strong relationships, gaining trust, and persuading others to support your ideas and proposals. In this chapter, we will explore the role of influence in managing up.
 

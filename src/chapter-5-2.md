@@ -1,5 +1,4 @@
-Chapter 5: Developing Influence and Persuasion Skills: Developing Effective Persuasion Techniques
-=================================================================================================
+# Developing Effective Persuasion Techniques
 
 Developing influence and persuasion skills are essential for managing up effectively. This involves developing effective persuasion techniques that can help you gain support for your ideas, build stronger relationships with your boss and colleagues, and achieve greater career success. In this chapter, we will explore strategies for developing effective persuasion techniques when managing up.
 

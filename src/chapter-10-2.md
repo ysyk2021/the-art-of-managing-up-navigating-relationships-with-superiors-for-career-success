@@ -1,5 +1,4 @@
-Chapter 10: Conclusion: Final Thoughts and Advice
-=================================================
+# Final Thoughts and Advice
 
 Managing up is a critical skill for achieving greater success in your career. By building strong relationships with your superiors, communicating effectively, and continuously improving your performance, you can achieve your goals and make a meaningful impact within the organization. In this final chapter, we will provide some final thoughts and advice for mastering the art of managing up.
 

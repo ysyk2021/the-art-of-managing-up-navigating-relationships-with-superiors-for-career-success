@@ -1,5 +1,4 @@
-Chapter 7: Balancing Loyalty and Integrity: Maintaining Professionalism and Integrity
-=====================================================================================
+# Maintaining Professionalism and Integrity
 
 Balancing loyalty to your boss with loyalty to your company can be challenging, especially when faced with ethical dilemmas or conflicts. In this chapter, we will explore strategies for maintaining professionalism and integrity when managing up.
 

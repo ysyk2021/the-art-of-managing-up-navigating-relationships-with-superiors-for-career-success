@@ -1,5 +1,4 @@
-Chapter 8: Measuring Results and Learning from Experience: Adapting to Changes in the Workplace
-===============================================================================================
+# Adapting to Changes in the Workplace
 
 Managing up involves building strong relationships with your superiors in order to achieve greater success in your career. One key aspect of managing up is measuring results and learning from experience, which involves tracking progress towards goals, reflecting on successes and challenges, and adapting to changes in the workplace. In this chapter, we will explore how to measure results, learn from experience, and adapt to changes in the workplace.
 

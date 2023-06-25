@@ -1,5 +1,4 @@
-Chapter 9: Continuous Improvement and Evaluation: Adapting to Changes in the Workplace
-======================================================================================
+# Adapting to Changes in the Workplace
 
 Continuous improvement and evaluation are essential for managing up and achieving long-term career success. In this chapter, we will explore strategies for reflection, self-evaluation, continuous learning and improvement, and adapting to changes in the workplace.
 

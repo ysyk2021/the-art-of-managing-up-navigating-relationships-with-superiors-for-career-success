@@ -1,5 +1,4 @@
-Chapter 7: Balancing Loyalty and Integrity: Handling Ethical Dilemmas and Conflicts
-===================================================================================
+# Handling Ethical Dilemmas and Conflicts
 
 Balancing loyalty to your boss with loyalty to your company can be challenging, especially when faced with ethical dilemmas or conflicts. In this chapter, we will explore strategies for handling ethical dilemmas and conflicts when managing up.
 

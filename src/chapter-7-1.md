@@ -1,5 +1,4 @@
-Chapter 7: Balancing Loyalty and Integrity: Understanding the Importance of Ethics in Managing Up
-=================================================================================================
+# Understanding the Importance of Ethics in Managing Up
 
 Managing up requires a delicate balance between loyalty to your boss and integrity towards the organization's values. In this chapter, we will explore how ethics plays a vital role in managing up, and strategies for maintaining ethical standards while managing up effectively.
 

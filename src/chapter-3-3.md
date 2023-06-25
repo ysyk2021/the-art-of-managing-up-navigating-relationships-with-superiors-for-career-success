@@ -1,5 +1,4 @@
-Chapter 3: Building a Positive Relationship with Your Boss: Identifying Your Boss's Priorities and Goals
-========================================================================================================
+# Identifying Your Boss's Priorities and Goals
 
 Building a positive relationship with your boss is crucial for managing up effectively. It involves understanding your boss's priorities, goals, and expectations, and aligning your work accordingly. In this chapter, we will explore strategies for identifying your boss's priorities and goals to build a positive relationship.
 

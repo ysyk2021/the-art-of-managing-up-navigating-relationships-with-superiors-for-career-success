@@ -1,5 +1,4 @@
-Chapter 4: Managing Expectations and Delivering Results: Developing Clear Goals and Objectives
-==============================================================================================
+# Developing Clear Goals and Objectives
 
 Managing expectations and delivering results are essential aspects of managing up effectively. This involves setting clear goals and objectives, communicating effectively, and following through on commitments. In this chapter, we will explore strategies for developing clear goals and objectives when managing up.
 

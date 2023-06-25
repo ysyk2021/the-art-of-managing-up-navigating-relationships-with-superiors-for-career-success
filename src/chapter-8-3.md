@@ -1,5 +1,4 @@
-Chapter 8: Measuring Results and Learning from Experience: Continuous Learning and Improvement
-==============================================================================================
+# Continuous Learning and Improvement
 
 Continuous learning and improvement are essential for managing up and achieving career success. In this chapter, we will explore strategies for continuous learning and improvement to measure results and learn from experience.
 

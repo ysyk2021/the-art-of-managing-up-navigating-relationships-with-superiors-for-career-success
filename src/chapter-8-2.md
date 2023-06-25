@@ -1,5 +1,4 @@
-Chapter 8: Measuring Results and Learning from Experience: Reflection and Self-Evaluation
-=========================================================================================
+# Reflection and Self-Evaluation
 
 Measuring results and learning from experience are essential aspects of managing up and achieving career success. In this chapter, we will explore strategies for reflection and self-evaluation to measure results and learn from experience.
 

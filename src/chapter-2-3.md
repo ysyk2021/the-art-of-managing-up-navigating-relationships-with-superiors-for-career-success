@@ -1,5 +1,4 @@
-Chapter 2: Defining Managing Up: Assessing Your Personal Managing Up Skills
-===========================================================================
+# Assessing Your Personal Managing Up Skills
 
 Managing up is the art of building effective relationships with superiors to achieve career success. In this chapter, we will define managing up and provide strategies for assessing your personal managing up skills.
 

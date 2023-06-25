@@ -1,5 +1,4 @@
-Chapter 6: Managing Up During Difficult Situations: Managing Up During Times of Change
-======================================================================================
+# Managing Up During Times of Change
 
 Managing up during difficult situations is essential for achieving greater success in your career. This involves navigating change, uncertainty, and challenges effectively and building strong relationships with your boss and colleagues. In this chapter, we will explore strategies for managing up during times of change.
 

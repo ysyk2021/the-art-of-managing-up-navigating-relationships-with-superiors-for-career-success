@@ -1,5 +1,4 @@
-Chapter 6: Managing Up During Difficult Situations: Dealing with Micromanagement
-================================================================================
+# Dealing with Micromanagement
 
 Micromanagement can be a challenging situation to navigate when managing up. It can cause stress, frustration, and hinder your ability to achieve your goals effectively. In this chapter, we will explore strategies for dealing with micromanagement when managing up.
 

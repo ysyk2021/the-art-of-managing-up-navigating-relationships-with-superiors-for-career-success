@@ -1,5 +1,4 @@
-Chapter 4: Managing Expectations and Delivering Results: Setting Realistic Expectations for Yourself and Your Boss
-==================================================================================================================
+# Setting Realistic Expectations for Yourself and Your Boss
 
 Managing expectations and delivering results are essential aspects of managing up effectively. This involves setting realistic expectations for yourself and your boss, communicating effectively, and following through on commitments. In this chapter, we will explore strategies for managing expectations and delivering results when managing up.
 

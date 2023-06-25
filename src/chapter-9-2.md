@@ -1,5 +1,4 @@
-Chapter 9: Continuous Improvement and Evaluation: Continuously Learning and Improving
-=====================================================================================
+# Continuously Learning and Improving
 
 Continuous learning and improvement are essential for managing up and achieving career success. In this chapter, we will explore strategies for embracing a growth mindset, seeking out opportunities for learning and development, experimenting with new approaches, and developing action plans.
 

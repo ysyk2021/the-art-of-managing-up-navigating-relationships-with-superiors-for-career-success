@@ -1,5 +1,4 @@
-Chapter 3: Building a Positive Relationship with Your Boss: Strategies for Demonstrating Respect and Trust
-==========================================================================================================
+# Strategies for Demonstrating Respect and Trust
 
 Building a positive relationship with your boss is critical for managing up effectively. It involves demonstrating respect and trust, which are essential ingredients for building rapport and credibility. In this chapter, we will explore strategies for demonstrating respect and trust to build a positive relationship with your boss.
 

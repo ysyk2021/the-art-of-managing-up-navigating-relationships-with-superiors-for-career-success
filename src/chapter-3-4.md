@@ -1,5 +1,4 @@
-Chapter 3: Building a Positive Relationship with Your Boss: Providing Solutions, Not Just Problems
-==================================================================================================
+# Providing Solutions, Not Just Problems
 
 Building a positive relationship with your boss is essential for managing up effectively. One key aspect of building a positive relationship is providing solutions, not just problems. In this chapter, we will explore strategies for providing solutions and demonstrating initiative when managing up.
 

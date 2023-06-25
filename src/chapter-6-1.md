@@ -1,5 +1,4 @@
-Chapter 6: Managing Up During Difficult Situations: Handling Conflict and Disagreements with Your Boss
-======================================================================================================
+# Handling Conflict and Disagreements with Your Boss
 
 Managing up involves building strong relationships with your superiors, but sometimes difficult situations arise that put those relationships to the test. When conflict or disagreements occur with your boss, it can be challenging to navigate the situation while maintaining a positive relationship. In this chapter, we will explore how to handle conflict and disagreements with your boss in a way that manages up effectively.
 

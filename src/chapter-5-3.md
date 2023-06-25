@@ -1,5 +1,4 @@
-Chapter 5: Developing Influence and Persuasion Skills: Utilizing Negotiation Strategies
-=======================================================================================
+# Utilizing Negotiation Strategies
 
 Negotiation is a crucial aspect of managing up effectively. It involves finding common ground, building relationships, and achieving mutually beneficial outcomes. In this chapter, we will explore strategies for utilizing negotiation skills to manage up effectively.
 

@@ -1,5 +1,4 @@
-Chapter 6: Managing Up During Difficult Situations: Addressing Performance Issues
-=================================================================================
+# Addressing Performance Issues
 
 Addressing performance issues can be a difficult situation to navigate when managing up. It involves having difficult conversations with your boss and colleagues, providing constructive feedback, and developing solutions to improve performance. In this chapter, we will explore strategies for addressing performance issues when managing up.
 

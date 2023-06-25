@@ -1,5 +1,4 @@
-Chapter 5: Developing Influence and Persuasion Skills: Building Coalitions and Alliances
-========================================================================================
+# Building Coalitions and Alliances
 
 Developing influence and persuasion skills is essential for navigating relationships with superiors and achieving career success. In this chapter, we will explore strategies for building coalitions and alliances to enhance your influence and persuasion skills.
 

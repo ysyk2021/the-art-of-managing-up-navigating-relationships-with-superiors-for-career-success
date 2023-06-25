@@ -1,5 +1,4 @@
-Chapter 3: Building a Positive Relationship with Your Boss: Developing Effective Communication Skills with Your Boss
-====================================================================================================================
+# Developing Effective Communication Skills with Your Boss
 
 Building a positive relationship with your boss is essential for achieving career success. In this chapter, we will explore strategies for developing effective communication skills to build a strong and positive relationship with your boss.
 

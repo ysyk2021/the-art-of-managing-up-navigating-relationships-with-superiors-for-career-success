@@ -1,5 +1,4 @@
-Chapter 2: Defining Managing Up: Understanding the Difference Between Managing Up and Sucking Up
-================================================================================================
+# Understanding the Difference Between Managing Up and Sucking Up
 
 Managing up is a critical skill for achieving career success, but it is often misunderstood. Some may confuse managing up with "sucking up" or brown-nosing, which can be detrimental to one's career. In this chapter, we will define managing up and explore the difference between managing up and sucking up.
 

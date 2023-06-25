@@ -1,5 +1,4 @@
-Chapter 4: Managing Expectations and Delivering Results: Handling Feedback and Criticism
-========================================================================================
+# Handling Feedback and Criticism
 
 Managing expectations and delivering results are essential aspects of managing up effectively. It involves setting clear goals, communicating effectively, and handling feedback and criticism in a professional manner. In this chapter, we will explore strategies for handling feedback and criticism when managing up.
 
