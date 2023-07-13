@@ -8,4 +8,5 @@ But this book is not just about professional development - it's about personal g
 
 In today's fast-paced and ever-changing work environment, learning how to navigate relationships with superiors is more important than ever. "The Art of Managing Up: Navigating Relationships With Superiors For Career Success" is the ultimate guide for anyone looking to take their career to the next level. So whether you're just starting out in your career or looking to advance to the next level, let this book be your guide on the path to success.
 
+
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
