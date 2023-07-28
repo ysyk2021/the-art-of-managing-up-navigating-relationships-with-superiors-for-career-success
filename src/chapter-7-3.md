@@ -74,5 +74,3 @@ Conclusion
 ----------
 
 Effectively handling ethical dilemmas and conflicts is essential for maintaining personal integrity, promoting organizational values, and fostering a positive work environment. By recognizing the significance of ethical decision-making, employing the strategies outlined in this chapter, and remaining committed to ethics throughout your career, you contribute to your own professional success while upholding ethical standards within your workplace.
-
-*Note: Ethical dilemmas can be complex and highly context-dependent. Consult legal professionals or ethics advisors when confronted with critical ethical issues to ensure compliance with applicable laws and regulations.*
