@@ -74,5 +74,3 @@ Creating an ethical culture when managing up involves collective efforts from in
 * **Support Reporting Mechanisms**: Establish confidential and accessible reporting mechanisms, such as hotlines or ombudsman services, that allow employees to report ethical concerns without fear of retaliation.
 
 By understanding the importance of ethics in managing up and actively integrating ethical behavior into your professional interactions, you can nurture positive relationships, build trust, and pave the way for long-term career success.
-
-*Please note that while this chapter provides guidance on ethical behavior, it is essential to consult your organization's specific code of conduct and adhere to relevant legal and professional guidelines.*

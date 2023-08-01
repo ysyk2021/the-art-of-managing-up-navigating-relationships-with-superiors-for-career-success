@@ -90,5 +90,3 @@ After negotiations, review the process and outcomes to continuously improve your
 * Learn from each negotiation experience to enhance your future negotiations.
 
 By employing these negotiation strategies, you can effectively manage up, influence decision-making, and foster productive relationships with your superiors, contributing to your long-term career success.
-
-*Please note that negotiation strategies can vary depending on the specific circumstances and individuals involved. Adapt these strategies to suit your unique situation.*
