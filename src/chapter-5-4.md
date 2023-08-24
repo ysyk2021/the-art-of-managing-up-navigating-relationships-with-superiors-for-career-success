@@ -1,5 +1,3 @@
-Building Coalitions and Alliances
-============================================
 
 Building coalitions and alliances is a critical skill for navigating relationships with superiors and achieving career success. This chapter explores the importance of forming strong partnerships, provides strategies for building coalitions, and offers insights on how to leverage these alliances to advance your career.
 

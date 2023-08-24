@@ -1,5 +1,3 @@
-Utilizing Negotiation Strategies
-===========================================
 
 Negotiation is an essential skill for managing up and fostering successful relationships with superiors. This chapter explores effective negotiation strategies that can help you navigate workplace dynamics, influence decision-making, and achieve mutually beneficial outcomes.
 

@@ -1,5 +1,3 @@
-Chapter 8: Measuring Results and Learning from Experience
-=========================================================
 
 Measuring results and learning from experience are essential for managing up and achieving career success. In this chapter, we will explore strategies for tracking progress, reflection, self-evaluation, continuous learning and improvement, and adapting to changes in the workplace.
 

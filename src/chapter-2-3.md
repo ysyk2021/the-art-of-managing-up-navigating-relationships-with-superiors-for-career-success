@@ -1,5 +1,3 @@
-Assessing Your Personal Managing Up Skills
-=====================================================
 
 Assessing your personal managing up skills is crucial for understanding your strengths and areas for improvement. This chapter will guide you through a self-assessment to evaluate your abilities in managing up effectively.
 

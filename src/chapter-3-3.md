@@ -1,5 +1,3 @@
-Identifying Your Boss's Priorities and Goals
-=======================================================
 
 To effectively manage up and build successful working relationships with your superiors, it's crucial to understand their priorities and goals. This chapter dives into the importance of identifying your boss's priorities and goals, provides strategies to gain clarity, and offers insights on how to align your work to support their objectives.
 

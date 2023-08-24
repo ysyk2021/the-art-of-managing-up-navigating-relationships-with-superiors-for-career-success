@@ -1,5 +1,3 @@
-Handling Feedback and Criticism
-==========================================
 
 Receiving feedback and criticism is an essential aspect of managing up and growing in your career. This chapter explores strategies for effectively handling feedback and criticism to foster personal and professional development.
 

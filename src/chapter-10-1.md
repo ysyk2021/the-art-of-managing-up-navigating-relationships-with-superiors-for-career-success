@@ -1,4 +1,3 @@
-# Recap of Key Managing Up Techniques
 
 Managing up is essential for achieving greater success in your career. By building strong relationships with your superiors, communicating effectively, and continuously improving your performance, you can achieve your goals and make a meaningful impact within the organization. In this final chapter, we will recap some of the key managing up techniques covered in this book.
 

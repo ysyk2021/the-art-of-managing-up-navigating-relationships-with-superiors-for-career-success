@@ -1,5 +1,3 @@
-Developing Effective Persuasion Techniques
-=====================================================
 
 In today's professional landscape, developing effective persuasion techniques is a valuable skill that can significantly contribute to your success when managing up. This chapter explores strategies and techniques to enhance your persuasive abilities and build rapport with your superiors.
 

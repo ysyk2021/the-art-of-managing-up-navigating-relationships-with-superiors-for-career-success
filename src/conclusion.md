@@ -1,4 +1,4 @@
-# Conclusion
+
 
 Managing up is a critical skill for achieving career success, and it involves building strong relationships with your superiors in order to achieve greater success in your career. In this chapter, we will summarize the key managing up techniques discussed in this book and provide some final thoughts and advice.
 

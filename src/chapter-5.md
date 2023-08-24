@@ -1,5 +1,3 @@
-Chapter 5: Developing Influence and Persuasion Skills
-=====================================================
 
 Developing influence and persuasion skills are essential for managing up and achieving career success. In this chapter, we will explore strategies for understanding the role of influence, developing effective persuasion techniques, utilizing negotiation strategies, and building coalitions and alliances.
 
@@ -27,5 +25,4 @@ Conclusion
 ----------
 
 Developing influence and persuasion skills are essential for managing up and achieving career success. By understanding the role of influence, developing effective persuasion techniques, utilizing negotiation strategies, and building coalitions and alliances, you can enhance your effectiveness as a leader and professional. Remember, managing up is an ongoing process -- it requires ongoing effort and investment. By embracing these strategies, you can achieve your full potential and lead a fulfilling and successful career.
-
 

@@ -1,5 +1,3 @@
-Chapter 3: Building a Positive Relationship with Your Boss
-==========================================================
 
 Building a positive relationship with your boss is essential for managing up effectively. By developing effective communication skills, demonstrating respect and trust, identifying your boss's priorities and goals, and providing solutions, not just problems, you can build a strong and productive relationship with your boss that will help you achieve greater success in your career.
 

@@ -1,5 +1,3 @@
-Chapter 7: Balancing Loyalty and Integrity
-==========================================
 
 Managing up involves building strong relationships with your superiors in order to achieve greater success in your career. However, managing up effectively also requires balancing loyalty to your boss with maintaining professionalism and integrity. In this chapter, we will explore how to balance loyalty and integrity, including understanding the importance of ethics in managing up, balancing loyalty to your boss and your company, handling ethical dilemmas and conflicts, and maintaining professionalism and integrity.
 

@@ -1,5 +1,3 @@
-Managing Up During Times of Change
-=============================================
 
 In a dynamic and ever-evolving professional landscape, the ability to manage up effectively during times of change is crucial for career success. This chapter explores strategies and approaches for navigating relationships with superiors amidst organizational changes and uncertainties.
 

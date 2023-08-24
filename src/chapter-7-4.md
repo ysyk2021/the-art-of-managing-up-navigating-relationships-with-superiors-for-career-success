@@ -1,5 +1,3 @@
-Maintaining Professionalism and Integrity
-====================================================
 
 Maintaining professionalism and integrity is paramount when managing up. This chapter explores the importance of professionalism and integrity in the workplace and provides practical strategies for upholding these qualities to achieve career success.
 

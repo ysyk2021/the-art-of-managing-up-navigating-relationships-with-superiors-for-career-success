@@ -1,5 +1,3 @@
-Chapter 4: Managing Expectations and Delivering Results
-=======================================================
 
 Managing up involves building strong relationships with your superiors in order to achieve greater success in your career. One key aspect of managing up is managing expectations and delivering results. In this chapter, we will explore how to set realistic expectations for yourself and your boss, develop clear goals and objectives, communicate progress and results effectively, and handle feedback and criticism.
 
@@ -35,5 +33,4 @@ Conclusion
 ----------
 
 In conclusion, managing expectations and delivering results is an essential component of managing up effectively. This involves setting realistic expectations for yourself and your boss, developing clear goals and objectives, communicating progress and results effectively, and handling feedback and criticism. By mastering these skills, you can build stronger relationships with your superiors, achieve greater success in your career, and make a meaningful impact within the organization. Let's strive to manage up effectively and deliver outstanding results through the power of effective communication and goal-setting.
-
 

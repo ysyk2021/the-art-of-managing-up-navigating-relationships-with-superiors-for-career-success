@@ -1,5 +1,3 @@
-Chapter 2: Defining Managing Up
-===============================
 
 Managing up is a critical skill for achieving greater success in your career. By building strong relationships with your superiors, communicating effectively, and continuously improving your performance, you can achieve your goals and make a meaningful impact within the organization. In this chapter, we will define managing up, explore the difference between managing up and sucking up, and assess your personal managing up skills.
 
@@ -28,5 +26,4 @@ Conclusion
 ----------
 
 In conclusion, managing up is a critical skill for achieving greater success in your career. By building strong relationships with your superiors, communicating effectively, and continuously improving your performance, you can achieve your goals and make a meaningful impact within the organization. Let's strive to understand the difference between managing up and sucking up, assess our personal managing up skills, and continuously improve our approach to managing up.
-
 

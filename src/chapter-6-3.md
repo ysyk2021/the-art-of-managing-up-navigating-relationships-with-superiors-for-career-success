@@ -1,5 +1,3 @@
-Dealing with Micromanagement
-=======================================
 
 Micromanagement can be a challenging aspect of any professional relationship. This chapter explores effective strategies for dealing with micromanagement in the workplace, helping you navigate this situation and maintain your productivity and sanity.
 

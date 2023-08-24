@@ -1,5 +1,3 @@
-Handling Ethical Dilemmas and Conflicts
-==================================================
 
 Ethical challenges and conflicts can arise when managing up in the workplace. This chapter delves into the importance of recognizing and addressing ethical dilemmas, provides strategies for effectively navigating such situations, and emphasizes the significance of maintaining integrity throughout your career.
 

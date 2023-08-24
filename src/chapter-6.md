@@ -1,5 +1,3 @@
-Chapter 6: Managing Up During Difficult Situations
-==================================================
 
 Managing up involves building strong relationships with your superiors in order to achieve greater success in your career. However, difficult situations can arise that require special attention and management. In this chapter, we will explore how to manage up during difficult situations, including handling conflict and disagreements with your boss, addressing performance issues, dealing with micromanagement, and managing up during times of change.
 

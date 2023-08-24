@@ -1,5 +1,3 @@
-Handling Conflict and Disagreements with Your Boss
-===========================================================
 
 In this chapter, we explore strategies for effectively handling conflicts and disagreements with your boss. Navigating these challenges requires finesse, tact, and effective communication skills to maintain a healthy working relationship while still advocating for your perspectives.
 

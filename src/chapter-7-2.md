@@ -1,5 +1,3 @@
-Balancing Loyalty to Your Boss and Your Company
-==========================================================
 
 Maintaining a delicate balance between loyalty to your immediate boss and loyalty to the overall company is a crucial aspect of managing up effectively. This chapter explores the importance of striking this balance, understanding the challenges it presents, and offering strategies to navigate this complex dynamic.
 

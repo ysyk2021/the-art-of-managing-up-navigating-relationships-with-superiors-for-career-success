@@ -1,5 +1,3 @@
-Communicating Progress and Results Effectively
-=========================================================
 
 Effective communication of progress and results is essential for managing up and fostering a successful relationship with your superiors. This chapter explores strategies to help you communicate your work effectively, showcase your accomplishments, and build trust and rapport with your superiors.
 

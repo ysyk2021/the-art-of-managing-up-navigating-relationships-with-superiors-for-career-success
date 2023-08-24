@@ -1,5 +1,3 @@
-Understanding the Role of Influence in Managing Up
-=============================================================
 
 In any professional setting, understanding the dynamics of influence is crucial for effectively managing up and building successful working relationships with superiors. This chapter explores the significance of influence, provides insights into different sources of influence, and offers strategies to enhance your ability to positively influence your superiors.
 

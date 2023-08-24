@@ -1,5 +1,3 @@
-Overview of Managing Up
-==================================
 
 Managing up is a valuable skill for navigating relationships with superiors, fostering career success, and contributing to organizational growth. This chapter provides an overview of managing up, its benefits, and key principles to keep in mind.
 

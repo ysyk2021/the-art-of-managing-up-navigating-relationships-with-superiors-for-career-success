@@ -1,5 +1,3 @@
-Benefits of Effective Managing Up Techniques
-=======================================================
 
 Effective managing up techniques can have a profound impact on your career success and professional growth. In this chapter, we will explore the various benefits that come from employing these techniques and developing strong relationships with your superiors.
 

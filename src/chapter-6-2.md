@@ -1,5 +1,3 @@
-Addressing Performance Issues
-========================================
 
 In the realm of managing up and navigating relationships with superiors, addressing performance issues is a crucial skill that contributes to career success. This chapter focuses on strategies for effectively addressing performance issues in a professional and constructive manner. By understanding how to navigate these delicate situations, you can foster growth, improve relationships, and advance your career.
 

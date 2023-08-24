@@ -1,5 +1,3 @@
-Developing Effective Communication Skills with Your Boss
-===================================================================
 
 Effective communication is key to building a strong professional relationship with your boss. This chapter explores strategies for developing effective communication skills that will help you navigate relationships with your superiors and achieve career success.
 
