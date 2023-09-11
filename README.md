@@ -1,3 +1,6 @@
+# The Art Of Managing Up: Navigating Relationships With Superiors For Career Success
+
+Book Link: [https://zhengpublishing.com/the-art-of-managing-up-navigating-relationships-with-superiors-for-career-success/](https://zhengpublishing.com/the-art-of-managing-up-navigating-relationships-with-superiors-for-career-success/)
 
 In today's competitive job market, career success often depends on more than just hard work and talent. Building positive relationships with superiors is crucial for advancing your career and achieving your goals. "The Art of Managing Up: Navigating Relationships With Superiors For Career Success" is a book that provides practical insights and strategies for building strong, productive relationships with your boss and other superiors.
 
